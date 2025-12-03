@@ -1,2 +1,2 @@
-# Electrom-canique-
+# Electromé-canique-
 je suis électromécanicien très organisé avec l'expérience.   
